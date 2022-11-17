@@ -8,7 +8,7 @@ HAPPY
 
 <!-- BACK -->
 
-| &nbsp;&nbsp; FROM DESPICABLE ME 2 &nbsp;&nbsp; |
+| &nbsp;&nbsp;   2 &nbsp;&nbsp; |
 
 HAPPY
 
